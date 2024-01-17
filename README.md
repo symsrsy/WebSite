@@ -1,5 +1,5 @@
 # www.akesenerji.com
 
-https://github.com/symsrsy/WebSite/assets/126015776/ae8cbd31-6b11-4be8-91a6-cd73dd0d262c
+https://github.com/symsrsy/WebSite/assets/126015776/eb060c6a-035c-44f6-992a-3badb78cc37d
 
  
